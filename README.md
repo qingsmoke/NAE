@@ -1,4 +1,4 @@
-![image-20240201140450649](C:\Users\刺客\AppData\Roaming\Typora\typora-user-images\image-20240201140450649.png)
+![image-20240201140450649](image-20240201140450649.png)
 
 ## 📖简介
 
