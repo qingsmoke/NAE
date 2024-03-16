@@ -1,4 +1,4 @@
-![image-20240201140450649](image-20240201140450649.png)
+![image-20240201140450649](https://github.com/qingsmoke/NAE/blob/main/image-20240201140450649.png)
 
 ## 📖简介
 
